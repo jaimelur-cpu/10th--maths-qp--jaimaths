@@ -1,1 +1,1 @@
-# 10th--maths-qp--jaimaths
+# 10th-jaimaths-kki
